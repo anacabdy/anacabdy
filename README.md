@@ -1,6 +1,6 @@
 ### Olá! Eu sou a anacabdy😎
 
-- 🔭 Hoje estou cursando meu último ano da escola
+- 🔭 Hoje estou cursando psicologia
 - 🌱 Aprendendo a programar
 - 📫 Contate-me no email: anahakim2401@gmail.com
 - 😄 ela/dela
